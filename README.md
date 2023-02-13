@@ -1,2 +1,2 @@
 # Carpetazomaker-3000
-version 2 xd
+https://lovera00.github.io/Carpetazomaker-3000/
